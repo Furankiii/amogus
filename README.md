@@ -1,2 +1,2 @@
-# amogus
+# SUSSY
 sussy
